@@ -1,2 +1,2 @@
-[![Github stats](https://github-readme-stats.vercel.app/api?username=ahkjxy&show_icons=true&include_all_commits=true)](https://github.com/ahkjxy/github-readme-stats)
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ahkjxy&layout=compact)](https://github.com/ahkjxy/github-readme-stats)
+We can make China great again!
+<p><a target="_blank" rel="noopener noreferrer nofollow" href="https://user-images.githubusercontent.com/507615/90595977-95e70e80-e220-11ea-864a-6a61adaff212.png"><img src="https://user-images.githubusercontent.com/507615/90595977-95e70e80-e220-11ea-864a-6a61adaff212.png" alt="" style="max-width: 100%;"></a></p>
